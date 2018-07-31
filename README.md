@@ -1,0 +1,2 @@
+# Makayla-s-Bio-
+My name is Makayla and I am from Eugene. I chose to take this summer class because I recently switched my major to Sociology and I enjoy summer classes a lot more than I do during the regular school season. When I am not doing school work I am working two different jobs as well as play soccer for two different teams so I don't have much time for anything else although I wish I could do more. Another thing about me is that I really don't like to hike and so I tend to avoid that at all costs.
